@@ -1,2 +1,1 @@
-# Data-bess-dinu-xmd
-Databss
+# meke-mokuth-ne-huttiye
